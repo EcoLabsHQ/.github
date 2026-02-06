@@ -1,4 +1,4 @@
-![EcoLabs Banner](https://cdn.prod.website-files.com/68b97a19ec9a59cbcd270ae0/6985dcbe02f824e65e9ea90d_file%20cover.png)
+![EcoLabs Banner](https://cdn.prod.website-files.com/68b97a19ec9a59cbcd270ae0/68c4247966a5b5f784d4e658_571413eec763056b5f34b1b420b6df09_opengraph.jpg)
 
 <p align="center">
   <a href="[https://www.superchain.eco/](https://www.labs.eco/)">
